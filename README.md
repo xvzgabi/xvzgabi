@@ -5,9 +5,9 @@
 
 - 👨‍🏫 Eu participo do projeto chamado favela ware, Uma iniciativa para treinar jovens programadores de 16 a 22 anos.<a href="https://favelaware.animahub.com.br/sobre" target="blank"> Clique aqui</a>
 
-- 🚀 Curiosidades sobre min: adoro pretos estilosos e nao sou santa
+- 🚀 Curiosidades sobre min: adoro ver series e filmes
 
-- 📊 Sou muito saideira e nao gosto de ficar em casa
+- 📊 Sou muito extrovestida e engraçada 
 
 <br><br>
 
